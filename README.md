@@ -1,10 +1,21 @@
-- 👋 Hi, I’m @kittoys
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-kittoys/kittoys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+PERBAIKAN-UTS
+E
+E
+D
+A
+C
+D
+C
+C
+B
+C
+D
+B
+C
+A
+E
+D
+B
+A
+D
+E
